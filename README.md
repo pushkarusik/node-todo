@@ -1,2 +1,1 @@
-# node-todo
-Node js test project
+Time to code!
