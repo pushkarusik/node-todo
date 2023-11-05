@@ -1,1 +1,1 @@
-stronger belong easily gave danger well twice breathe broke troops later vote trunk thin jungle
+stood country foot smooth slowly palace bare giving trail declared topic of quite spite attached
