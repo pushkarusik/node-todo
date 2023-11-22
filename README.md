@@ -1,1 +1,1 @@
-her middle basis equator beat danger myself arrange victory yourself had friendly he steady recall
+course experience ground wish warm welcome open paper start factor stuck dinner glass properly opposite
