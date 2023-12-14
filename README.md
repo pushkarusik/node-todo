@@ -1,1 +1,1 @@
-then joined camp hollow got dot dog willing chair forward lost entirely came tried broken
+political willing audience remove throat solution your numeral tape mail limited can rock belong plates
