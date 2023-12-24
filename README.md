@@ -1,1 +1,1 @@
-direction star hardly warm corn little break black eat trunk fairly rose have doctor supper
+control relationship influence below circus bite wool plain what trace troops stomach sense made capital
