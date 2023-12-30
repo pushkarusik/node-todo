@@ -1,1 +1,1 @@
-flower hard blew baby exist stock task saved care pool best trade broad chicken difficult
+hung border stood regular farmer luck adjective pair hollow although putting our pupil by station
