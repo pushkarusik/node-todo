@@ -1,1 +1,1 @@
-luck power tower shine complete happened rate introduced size limited indeed knife luck crop third
+hurried consider beauty dirt planned built better children mill angry whom greatly fought win purple
